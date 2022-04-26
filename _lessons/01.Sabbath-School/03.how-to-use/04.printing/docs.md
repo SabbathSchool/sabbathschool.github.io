@@ -1,6 +1,6 @@
 ---
 classes: wide
-permalink: permalink: /sabbath-school/how-to-use/printing/
+permalink: /sabbath-school/how-to-use/printing/
 title: Sabbath School Lessons Project
 metadata:
     description: 

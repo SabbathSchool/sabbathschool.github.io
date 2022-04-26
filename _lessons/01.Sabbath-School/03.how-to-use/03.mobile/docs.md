@@ -1,6 +1,6 @@
 ---
 classes: wide
-permalink: permalink: /sabbath-school/how-to-use/mobile/
+permalink: /sabbath-school/how-to-use/mobile/
 title: Sabbath School Lessons Project
 metadata:
     description: 

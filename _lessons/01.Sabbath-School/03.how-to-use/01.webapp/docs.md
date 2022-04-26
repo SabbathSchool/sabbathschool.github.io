@@ -1,6 +1,6 @@
 ---
 classes: wide
-permalink: permalink: /sabbath-school/how-to-use/webapp/
+permalink: /sabbath-school/how-to-use/webapp/
 title: Sabbath School Lessons Project
 metadata:
     description: 

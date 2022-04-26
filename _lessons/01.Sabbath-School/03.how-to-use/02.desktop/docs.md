@@ -1,6 +1,6 @@
 ---
 classes: wide
-permalink: permalink: /sabbath-school/how-to-use/desktop/
+permalink: /sabbath-school/how-to-use/desktop/
 title: Sabbath School Lessons Project
 metadata:
     description: 
