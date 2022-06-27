@@ -1,6 +1,6 @@
 ---
 layout: coverpage
-permalink: /
+permalink: /google792f98575e389446.html
 header:
   overlay_color: "#5e616c"
   overlay_image: /assets/images/mm-home-page-feature.jpg
