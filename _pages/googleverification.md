@@ -1,5 +1,5 @@
 ---
-layout: coverpage
+layout: googleverification
 permalink: /google792f98575e389446.html
 header:
   overlay_color: "#5e616c"
