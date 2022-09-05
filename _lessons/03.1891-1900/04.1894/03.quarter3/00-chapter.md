@@ -10,6 +10,8 @@ metadata:
 
 #### Gospel by Luke
 
+Heading
+
 ## 1894 Quater 3
  
  "The entrance of thy word giveth light."
@@ -1332,5 +1334,5 @@ the following rates: so cents per hundred, or $4.00 per thousand copies.
                           Oakland, Cal.; New York City; Kansas City, Mo.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg2MjEwOTA2XX0=
+eyJoaXN0b3J5IjpbLTg1NDk3MjYxMl19
 -->
