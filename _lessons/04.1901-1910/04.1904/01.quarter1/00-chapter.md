@@ -1860,3 +1860,6 @@ a circulation of roo,o0o weekly.
 
      The Signs of the Times, Oakland, Cal.
 
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTcxNjY5MzE1M119
+-->
