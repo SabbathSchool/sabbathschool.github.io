@@ -11,6 +11,7 @@ metadata:
 #### Gospel by Luke
 
 ## 1894 Quater 1
+
  LESSONS ON THE BOOK OF LUKE.
 
 ...to explain any of the book, but only to set some of it forth in bold relief. It is simply what is stated in the title, a study, and a foundation for future study. It is an attempt to assist the members of Sabbath schools, and others, also, to obtain such a familiarity with the contents of this portion of the Scriptures that they may study it for themselves, and that, having studied it, they may retain the results of their study.
@@ -628,3 +629,6 @@ THE BIBLE STUDENTS' 616111111Y.
 70. Immortality of the Soul, 4 Are 2
 *71. Righteousness: Where It *Also in Spanish and Portuguese.
  Is, and How Obtained, 1 64 tAlso in Spanish.
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMTQyNDYxNjgzXX0=
+-->
