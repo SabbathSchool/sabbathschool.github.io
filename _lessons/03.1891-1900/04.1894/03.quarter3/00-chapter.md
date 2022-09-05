@@ -11,27 +11,7 @@ metadata:
 #### Gospel by Luke
 
 ## 1894 Quater 3
-                                             PRICE, 5 CENTS.
-,....•,,...•,,..,..-tqu•...........u.lu..•..•.......,,.....•”/”.•,.......•.,.....,•....•...”•o%
-                                                                        .:-
-                                                                          :7-..-- TW:--  =--_:--
-                                                                                       ----
-                                                                                      -—
-
-
-
-                                                                                                                            .-:=--
-                                                                                                                             -L -
-
-
-
-
-                •                                                                                                                      =
-
-
-
-                    •-t7----.                              'ACZA74-      -'
-                                                                                 „------,---   _J_T_-_                                ;
+                                                 ;
 ;                   "The et-It/lance of thy Illovd giveth light."
 :.-
   2-:                           Wt
@@ -1358,3 +1338,6 @@ the following rates: so cents per hundred, or $4.00 per thousand copies.
             Pacific Press Publishing Company,
                           Oakland, Cal.; New York City; Kansas City, Mo.
 
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTM2OTMwODQ0MV19
+-->
