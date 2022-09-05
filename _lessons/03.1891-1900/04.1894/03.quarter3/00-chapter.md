@@ -11,16 +11,9 @@ metadata:
 #### Gospel by Luke
 
 ## 1894 Quater 3
-                                                 ;
-;                   "The et-It/lance of thy Illovd giveth light."
-:.-
-  2-:                           Wt
-,.           THE                     0
-                                           SfIBBfati 8611001 LESSONS
-          Etisaa
-     STUDENTS                              A STUDY OF THE
-         fill3RARy,                                  •
-                                                       OF •
+ 
+ "The entrance of thy word giveth light."
+A STUDY OF THE BOOK                                                        OF •
                                                   BOOK    LUKE
         MONTHLY
 s         PUBLICATION
@@ -1339,5 +1332,5 @@ the following rates: so cents per hundred, or $4.00 per thousand copies.
                           Oakland, Cal.; New York City; Kansas City, Mo.
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM2OTMwODQ0MV19
+eyJoaXN0b3J5IjpbLTg2MjEwOTA2XX0=
 -->
