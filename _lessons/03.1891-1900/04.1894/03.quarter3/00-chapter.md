@@ -1,33 +1,28 @@
 ---
 classes: wide
 permalink: /1891-1900/1894/quarter3/
-title: Gospel by Luke
+title: A study of the Book of Luke - 1894 Quater 3
 metadata:
-description: Gospel by Luke - 1894 Quater 3 Sabbath School Lesson
+description: A study of the Book of Luke - 1894 Quater 3 Sabbath School Lesson
 keywords: Gospel by Luke
 author: Brian Onang'o
 ---
 
-# Gospel by Luke - 1894 Quater 3
+## The Bible Students Library
 
-NO. PRICE. NO. PRICE.
-1. Bible Sanctification so cts. 74. The Counterfeit and the
-2. Abiding Sabbath 20 Genuine 2 CtS.
-1-75. Living by Faith 2 "
-3. Views of Natal Reform 15
-4. The Saints' Inheritance so 76. Bible Questions and An-
-swers Concerning Man. a "
-so. Scripture References 4
-77. The Talents 2 "
-14. The Sufferings of Christ 4
-16. Christ in the Old Testam't 2 79. Baptism: Its Significance 2 "
-24. Is Sunday the Sabbath? 80. Sunday: Origin of Its
-25. The Sanctuary and t h e Observance in the
-Judgment 2 Christian Church 15 "
-26. The Sabbath in the New 81. God's Message for To-
-Testament. 2 day 1 "
-27. The Bible: Its Inspiration 83. Angels: Their Nature "
-and Importance 2 11 and Ministry 20 "
+|No. | Price | No. |Price |
+|----|-------|-----|------|
+|1. Bible Sanctification |10 cts. | 74.| The Counterfeit and the Genuine |2 cts |
+|2. Abiding Sabbath |20 "| 75. Living by Faith| 2 "|
+|3. [Views of National](http://centrowhite.org.br/files/ebooks/apl/all/Jones/Views%20of%20National%20Reform,%20Series%20One.pdf) Reform| 15 "|||
+|4. The Saints' Inheritance|10 | 76. Bible Questions and Answers Concerning Man |2 "|
+|10. Scripture References| 4 "| 77. The Talents| 2 "|
+|14. The Sufferings of Christ| 4"|||
+|16. Christ in the Old Testament| 2"| 79. Baptism: Its Significance| 2 "|
+|24. Is Sunday the Sabbath?| 1"| 80. Sunday: Origin of Its  Observance in the Christian Church| 15 "|
+|25. The Sanctuary and the Judgment| 2"|||
+|26. The Sabbath in the New Testament| 2"| 81. God's Message for Today |1"|
+|27. The Bible: Its Inspiration and Importance| 2"| 83. Angels: Their Nature and Ministry| 20"
 31. The Second Advent 4 85. Twofold Evidence of Ac-
 34. God's Memorial 2 ceptance with God r "
 36. The Signs of the Times 86. Justification, Regenera-
