@@ -18,3 +18,6 @@ Do not therefore, try to find out what somebody else thinks. *Another's thoughts
 Remember that no man's opinion about the Bible is of any value. Even a very good man may be mistaken; but the Spirit of the Lord is never mistaken. *It* is given to teach us all things, and to reveal to us the deep things of God. Learn to ask wisdom from the Source of Wisdom (see Col. 2:2,3; James 1:5,6), and to expect an answer. This is not saying that any one of us is independent of others, and can receive no help from them; but whatever help comes to us must be the word of God, and not human opinions. Other people are of no help to us if they give us their opinions instead of the word of God.
 
 Never guess what a text means, and don't adopt somebody else's guesses. If the meaning of any text is not obvious, meditate on it, compare it with other texts, and do not be impatient in your study. Do not expect to know everything at once. Learn to wait on the Lord. If in this study you make it your principal object to get an intimate acquaintance with the facts recorded, and the place where each event is recorded, you will gain as much as can possibly be expected.
+
+#### Lesson 4
+In studying this lesson, do not forget to review the whole chapter until you can "think through" the whole of it. 
