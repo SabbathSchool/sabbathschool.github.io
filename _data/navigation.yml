@@ -2,8 +2,10 @@
 main:
   - title: "Explore All Lessons"
     url: /sabbath-school/sabbath-school-lesson-topics/
+  - title: "sslpdfs"
+    url: "https://sslpdfs.gospelsounders.org/"
   - title: "Quotes"
-    url: /quotes/
+    url: /sabbath-school/lesson-writer-quotes/
 
 
 # lesson links
