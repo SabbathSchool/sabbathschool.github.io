@@ -1,12 +1,17 @@
 ---
 classes: wide
 permalink: /1891-1900/1894/quarter3/
-title: A study of the Book of Luke - 1894 Quater 3
+title: Lessons on The Book of Luke - July 7 to September 29, 1894
 metadata:
 description: A study of the Book of Luke - 1894 Quater 3 Sabbath School Lesson
 keywords: Gospel by Luke
 author: Brian Onang'o
 ---
+
+## Sabbath School Lesson for Senior Classes
+
+July 7 to September 29, 1894.
+
 
 # The Bible Students Library
 
@@ -56,9 +61,10 @@ Ever| 2"|
 
 
 
-# Introductory Note
-THIRD PART.
-To be Thoughtfully and Carefully Read.
+# A Study of the Book of Luke
+## Third Part
+### To be Thoughtfully and Carefully Read.
+
 
 Those who have been studying the book of Luke diligently for the past six months have doubtless gained, besides a pretty thorough acquaintance with the first eleven chapters, considerable experience in study. It will not be necessary therefore, in the remaining lessons, to note the analysis so closely, neither will so many notes be given to aid the student, as heretofore. A few suggestions here may serve for every lesson. At the same time recall the suggestions made in previous lessons. They are of a general nature, and are adapted to all Bible study.
 1. Do not get the idea that any given analysis of a chapter is the analysis. That which will best serve to bring the contents of the chapter to your mind is the best for you. The essential thing is to master the contents of a book, chapter by chapter. *It is obvious that no one can be said to be familiar with the Bible, or with any part of it, unless he knows definitely what is in it, and where to find it.*
@@ -69,22 +75,23 @@ Those who have been studying the book of Luke diligently for the past six months
 6. Finally, do not argue or debate over Scripture. To do so is fatal to an understanding of it. You cannot study the Bible in a crowd. Study must be done alone. " Be still, and know that I am God." Ps. 46:10. It was not in the tempest, but in the still, small voice that the Lord was revealed to Elijah. Noise and clamor are incompatible with efficient Bible study. Study in silence with the Lord. Jesus is just as able to open the Scriptures to you, and to open your understanding, as He was when on earth in the flesh. See Luke 24:32-45. Go to Him and let your faith make Him a real Presence near at hand, and you will find that the opening of His "words giveth light; it giveth understanding unto the simple." Ps. 119:130, R.V. "For the Lord giveth wisdom; out of His mouth cometh knowledge and understanding." Prov. 2:6.
 
 
-July 7 to September 29, 1894.
 
-LESSON 1 - July 7, 1894.
-TAUGHT OF GOD. Luke 12 : 1-21.
 
-This lesson may be divided into three sections, as follows: Warning against Hypocrisy; Fear of God, and Dependence upon Him; The Poor Rich MA. —
+## Lesson 1 - Taught of God
+*Luke 12:1-21.*
+#### July 7, 1894.
+
+This lesson may be divided into three sections, as follows: Warning against Hypocrisy; Fear of God, and Dependence upon Him; The Poor Rich Man.
 1. How great a company gathered to hear Jesus?
 2. Against what did He warn them?
 3. Why is it useless to act the part of a hypocrite?
-4. How clearly will hidden things be made Manifest?
+4. How clearly will hidden things be made manifest?
 5. Of whom are we not to be afraid? Why?
 6. Whom should we fear?
 7. What assurance have we of God's care for us?
 8. How close is God's watchfulness over His creatures?
-9. What promise is given to those whO confess Christ?
-10. What of those who deny Him? Compare 2 Tim. 2: 11-13.
+9. What promise is given to those who confess Christ?
+10. What of those who deny Him? Compare 2 Tim. 2:11-13.
 11. Yet may one find forgiveness for denying Christ? Give a notable instance.
 12. What is said of blasphemy against the Holy Ghost?
 13. What preparation for reply should men make when they are brought before magistrates for their faith?
@@ -95,67 +102,17 @@ This lesson may be divided into three sections, as follows: Warning against Hypo
 18. Why should we not be desirous of gain?
 19. By what did Christ enforce this teaching?
 20. Repeat the parable.
-21. How should we be rich'?
+21. How should we be rich?
 
 
-NOTES.
-1. WITH verses 2 and 3 may be compared Eccl. 12 : 14; 1 Cor.
-3: 18; 4: 5. The hypocrite hides his real character from a few,
-only to have it fully exposed to the multitude in the, judgment.
-2. "YE are dead, and your life is hid with Christ in God.''
-Col. 3 : n. '' In whose hand is the soul of every living thing,
-and the breath of all mankind." Job 12 : 10. God can utterly
-destroy, while man cannot, though he burn the body to ashes and
-scatter them to the four winds. Therefore the righteous need
-never fear what man may attempt to do.
-3. "EVEN the very hairs of your head are all numbered."
-Some choose to believe that 'this is figurative, and not an actual
-fact. They think so because of the seeming impossibility of the
-thing; but that is measuring God by man. " The things which
-are impossible with men are possible with-God." Luke 18: 27.
-Compare Ps. 139 : 1-6. God even remembers every sparrow.
-With confidence then can we trust ourselves in His hands, when
-we are assured that He not only knows, but that He cares for us.
-1 Peter 5 : 7.
-4. WITHOUT trying to define just what constitutes blasphemy
-against the Holy Ghost, it is sufficient to note one or two points.
-" If we confess our sins, He is faithful and just to forgive us our
-sins, and to cleanse us from all unrighteousness." 1 John 1 : 9.
-This assures us that everyone who wants forgiveness is sure to
-receive it. Therefore it is certain that no matter how grievously one
-has sinned, he has not committed the sin against the Holy Ghost,
-if he desires forgiveness. No repentant soul is rejected by the
-Lord. "Him that cometh to Me, I will in nowise cast out."
-John 6: 37. This should be sufficient to comfort the hearts of
-those who tremble lest they have committed the unpardonable sin.
-Thd man who has committed that sin is not troubled over it.
-5. " FOR the Holy Ghost shall teach you in the same hour what
-ye ought to speak." Still more emphatic is the instruction in
-Luke 21:12-16. But one who receives the Spirit's aid at such a
- LESSONS ON THE BOOK OF LUKE.
-
-time - must have formed an acquaintance with the Spirit before
-that time. He must previously have learned to depend upon the
-Spirit for guidance in speaking. The one who has never dared to
-speak God's message without settling beforehand just what he
-would say, will not be likely to begin in the greatest emergency of
-his life. But not taking thought what one shall say, or how
-he shall speak, does not mean neglect of preparation. The word
-of God must be meditated upon day and night. " Meditate on
-these things; give thyself wholly to them," is the instruction of
-Paul to everrservant of God.
-
-6. ‘ THou fool." The fool is the one who says in his heart,
-" There is no God." Ps. 14 : 1. This was just what the rich man
-in the parable said. Every man whose soul is absorbed in amass-
-ing wealth for himself and Por his children, as well as the poor
-man whose anxiety day and night is how he can make a living,
-really says in his heart, " There is no God." He acts as though
-God were not in existence, and everything depended on himself.
-Life is something besides eating and drinking and having plenty
-of clothing. Life, indeed, is rest in God, and trust in His care.
-" He that bath the Son hath life; he that bath not the Son of God •
-'.bath not life." 1 John 5 : 12.
+### NOTES.
+1. With verses 2 and 3 may be compared Eccl. 12:14; 1 Cor. 3:13; 4:5. The hypocrite hides his real character from a few, only to have it fully exposed to the multitude in the judgment.
+2. "Ye are dead, and your life is hid with Christ in God." Col. 3:3. "In whose hand is the soul of every living thing, and the breath of all mankind" Job 12:10. God can utterly destroy, while man cannot, though he burn the body to ashes and scatter them to the four winds. Therefore the righteous need never fear what man may attempt to do.
+3. "Even the very hairs of your head are all numbered." Some choose to believe that this is figurative, and not an actual fact. They think so because of the seeming impossibility of the thing; but that is measuring God by man. "The things which are impossible with men are possible with God." Luke 18:27. Compare Ps. 139:1-6. God even remembers every sparrow. With confidence then can we trust ourselves in His hands, when we are assured that He not only knows, but that He cares for us. 1 Peter 5:7.
+4. Without trying to define just what constitutes blasphemy against the Holy Ghost, it is sufficient to note one or two points. "If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness." 1 John 1:9. This assures us that everyone who wants forgiveness is sure to receive it. Therefore it is certain that no matter how grievously one has sinned, he has not committed the sin against the Holy Ghost, if he desires forgiveness. No repentant soul is rejected by the Lord. "Him that cometh to Me, I will in nowise cast out." John 6:37. This should be sufficient to comfort the hearts of those who tremble lest they have committed the unpardonable sin. The man who has committed that sin is not troubled over it.
+5. "For the Holy Ghost shall teach you in the same hour what ye ought to speak." Still more emphatic is the instruction in Luke 21:12-16. But one who receives the Spirit's aid at such a time must have formed an acquaintance with the Spirit before that time. He must previously have learned to depend upon the Spirit for guidance in speaking. The one who has never dared to speak God's message without settling beforehand just what he would say, will not be likely to begin in the greatest emergency of his life. But not taking thought what one shall say, or how he shall speak, does not mean neglect of preparation. The word of God must be meditated upon day and night. "Meditate on these things; give thyself wholly to them," is the instruction of
+Paul to every servant of God. 1 Tim. 4:15
+6. "THou fool." The fool is the one who says in his heart, "There is no God." Ps. 14:1. This was just what the rich man in the parable said. Every man whose soul is absorbed in amassing wealth for himself and for his children, as well as the poor man whose anxiety day and night is how he can make a living, really says in his heart, "There is no God." He acts as though God were not in existence, and everything depended on himself. Life is something besides eating and drinking and having plenty of clothing. Life, indeed, is rest in God, and trust in His care. "He that hath the Son hath life; he that hath not the Son of God hath not life." 1 John 5:12.
 
 
 
