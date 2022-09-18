@@ -115,16 +115,11 @@ Paul to every servant of God. 1 Tim. 4:15
 6. "THou fool." The fool is the one who says in his heart, "There is no God." Ps. 14:1. This was just what the rich man in the parable said. Every man whose soul is absorbed in amassing wealth for himself and for his children, as well as the poor man whose anxiety day and night is how he can make a living, really says in his heart, "There is no God." He acts as though God were not in existence, and everything depended on himself. Life is something besides eating and drinking and having plenty of clothing. Life, indeed, is rest in God, and trust in His care. "He that hath the Son hath life; he that hath not the Son of God hath not life." 1 John 5:12.
 
 
+## Lesson 2 - Dependence on God.
+Luke 12:22-40.
+#### July 14, 1894.
 
-
-LESSON 11.-July 149 1894.
-DEPENDENCE ON GOD. Luke 12 : 22-40.
-
--VERSES 22-31 might be summarized by the words of,the prophet:
-
-" Behold, God is my salvation; I will trust, and not be afraid."
-Isa. 12: 2. The remainder of the lesson is about the promised
-kingdom.
+Verses 22-31 might be summarized by the words of the prophet: "Behold, God is my salvation; I will trust, and not be afraid." Isa. 12: 2. The remainder of the lesson is about the promised kingdom.
 1. In the parable last studied, what was the rich man's sole care?
 2. What difference should there be between him and the Christian?
 3. What is more important than food and clothing?
@@ -137,38 +132,21 @@ kingdom.
 10. Why do we not need to worry about our support?
 11. What class of people do that?
 12. What only need we seek after?
-13. If we devote ourselves to seeking the kingdom of God,.oi what may we be assured?
+13. If we devote ourselves to seeking the kingdom of God, of what may we be assured?
 14. Why need we not fear in any case?
 15. What exhortation is given to them that have possessions?
 16. Where should the treasure be? Why?
 17. How should we be prepared?
-18. Whom should -we be like?
+18. Whom should we be like?
 19. What is said of those servants who are found watching?
 20. Do we know when the Lord will come?
-21. What are we therefore exhorted- to do?
+21. What are we therefore exhorted to do?
 
 
-- NOTES.
-1. Sucx trust as the Lord teaches in this chapter is not very
-common. Many who have much to say against spiritualizing
-Scripture are very loath to take this literally. It is easy to think
-that we are trusting the Lord when everything is abundant ; but
-real trust is shown by not becoming worried and alarmed when the
-supply seems exhausted. It is impossible that a Christian should
-worry about food and clothing ; for the eternal life is of more con-
-sequence than mere physical life ; and he who really trusts God for
-that which is greatest, can easily trust Him for that which is least.
-On "growing as the lily,"'see Hosea 14: 5. See also Isa. 61 : 11.
-To be full of anxious care is a sign of heathenism, but not of Chris-
-tianity. See Luke 12 : 30.
-2. "IT is your Father's good pleasure to give you the kingdom. "
-God delights to bestow blessings on men. " He delighteth in
-mercy." Micah 7: 18. He gave Himself for us in the gift of
-Christ, who " ever liveth to make intercession for us." Therefore
-it is true that God lives for the purpose of bestowing the blessings
-of His kingdom upon us. Let us then receive it as freely as it is
-given, and thus add to the joy of the Lord.
- LESSONS ON THE BOOK OF LUKE. 9
+### NOTES.
+1. Such trust as the Lord teaches in this chapter is not very common. Many who have much to say against spiritualizing Scripture are very loath to take this literally. It is easy to think that we are trusting the Lord when everything is abundant; but real trust is shown by not becoming worried and alarmed when the supply seems exhausted. It is impossible that a Christian should worry about food and clothing; for the eternal life is of more consequence than mere physical life; and he who really trusts God for that which is greatest, can easily trust Him for that which is least. On "growing as the lily," see Hosea 14:5. See also Isa. 61:11. To be full of anxious care is a sign of heathenism, but not of Christianity. See Luke 12:30.
+2. "It is your Father's good pleasure to give you the kingdom." God delights to bestow blessings on men. "He delighteth in mercy." Micah 7:18. He gave Himself for us in the gift of Christ, who "ever liveth to make intercession for us." Therefore it is true that God lives for the purpose of bestowing the blessings of His kingdom upon us. Let us then receive it as freely as it is given, and thus add to the joy of the Lord.
+
 
 LESSON I11.—July 21, 1894.
 
