@@ -22,53 +22,41 @@ author: Brian Onang'o
 |24. Is Sunday the Sabbath?| 1"| 80. Sunday: Origin of Its  Observance in the Christian Church| 15 "|
 |25. The Sanctuary and the Judgment| 2"|||
 |26. The Sabbath in the New Testament| 2"| 81. God's Message for Today |1"|
-|27. The Bible: Its Inspiration and Importance| 2"| 83. Angels: Their Nature and Ministry| 20"
-31. The Second Advent 4 85. Twofold Evidence of Ac-
-34. God's Memorial 2 ceptance with God r "
-36. The Signs of the Times 86. Justification, Regenera-
-44q: Elihu on the Sabbath a tion, Sanctification 2 "
-43. The Ten Commandments 90. The Bible Doctrine of
-Not Revised 2 the Trinity 2 "
-46. Without Excuse 93. Christian Science-ls It
-47. Thoughts for the Candid. Science? Is It Chris-
-48. Which Day Do You Keep tian 15
-and Why? . 95. From Sabbath to Sunday I "
-49. Can We Know? 97. Sun of Righteousness-so "
-o. Is the End Near? 99. Prediction, Interpreta-
-51. Is Man Immortal? tion, Fulfillment
-52. Why Not Found Out Be- so,. The Rest That Remains
-fore for the People of God 1 "
-53. The Sabbath and the 203. Should Christians Be
-Law 20 Members of Secret So-
-54• Nature and Obligation of cieties? 3
-the Sabbath so 104. Justified by Faith 2 "
-55. Order of Events in the 1o5. The Way to Christ 2 "
-Judgment 5 107. Who Changed the Sab-
-57. Lessons on the ". Life of bath? (new) 3 "
-Christ" 2 rob. Life: Its Source and Pur-
-58. Matthew 24 or the Second pose so "
-Coming of Christ .. so mo. Appeal to Methodists , I "
-6o. Bible Lessons on " Proph- six. Tormented Forever and
-ecy 2 Ever 2 "
-61. Bible Lessons on "Sin and 112. Spiritualism: Its Source
-Righteousness" and Character 2 "
-63. The Sure Foundation and 113. The Christian Sabbath 4 "
-Keys of the Kingdom 2 114. The Identical Seventh
-64. The Full Assurance of Day 2 "
-Faith 2 115. Waymarks to the Holy
-65. The Great Day of the City 2
-Lord 5 117. Prophetic Lights. Illus-
-67. Bible Election 3 trated, 18o pp 59 "
-68. The Old Testament in the 118. Christ Tempted as We
-New Dispensation 3 Are 2 "
-69. "Jewish." Christians Are 119. The Kingdom of Christ 2 "
-Israelites Indeed ...... 121. The Temporal Millen'uns 3 "
-70. Immortality of the Soul 4 122. Perfection of the Law 3 "
-72. Christ and His Righteous- 124. Manner of Christ's Coin-
-ness 15 ing 2 "
-73. Can We Keep the Sab-
-bath? 2 lAlso in Spanish.
-Address, Pacific Press Publishing co., Oakland, Cal.
+|27. The Bible: Its Inspiration and Importance| 2"| 83. Angels: Their Nature and Ministry| 20"|
+|31. The Second Advent| 4"| 85. Twofold Evidence of Aceptance with God| 1"|
+|34. God's Memorial |2"|||
+|36. The Signs of the Times| 2"| 86. Justification, Regeneration, Sanctification| 2 "|
+|42: Elihu on the Sabbath| 2"||| 
+|43. The Ten Commandments Not Revised| 2"| 90. The Bible Doctrine of  the Trinity |2"|
+|46. Without Excuse|1"| 93. Christian Science - Is It Science? Is It Christian?| 15"|
+|47. Thoughts for the Candid.|1"|||
+|48. Which Day Do You Keep and Why?|1"| . 95. From Sabbath to Sunday| 1"|
+|49. Can We Know?|1"| 97. Sun of Righteousness|10"|
+|50. Is the End Near?|1"| 99. Prediction, Interpretation, Fulfillment| 2"|
+|51. Is Man Immortal?|1"|||
+|52. Why Not Found Out Before|1"|The Rest That Remains for the People of God| 1"|
+|53. The Sabbath and the Law|20"| 103. Should Christians Be Members of Secret Societies?|3"|
+|54. Nature and Obligation of the Sabbath |10"| 104. Justified by Faith |2"|
+|55. Order of Events in the Judgment| 5"|105. The Way to Christ| 2"|
+|||107. Who Changed the Sabbath? (new)| 3"|
+|57. Lessons on the "Life of Christ" |2"|108. Life: Its Source and Purpose| 10"|
+|58. Matthew 24 or the Second Coming of Christ| 10"|110. Appeal to Methodists|1"|
+|60. Bible Lessons on "Prophecy"|2"|111. Tormented Forever and
+Ever| 2"|
+|61. Bible Lessons on "Sin and Righteousness"|1"|112. Spiritualism: Its Source and Character| 2"|
+|63. The Sure Foundation and Keys of the Kingdom| 2"|113. The Christian Sabbath|4"|
+|||114. The Identical Seventh Day |2"|
+|64. The Full Assurance of Faith |2"| 115. Waymarks to the Holy City |2"|
+|65. The Great Day of the Lord| 5"|117. Prophetic Lights. Illustrated, 180 pp |50"|
+|67. Bible Election |3"| || 
+|68. The Old Testament in the New Dispensation|3"|118. Christ Tempted as We Are |2"|
+|69. "Jewish." Christians Are Israelites Indeed|1"|119. The Kingdom of Christ |2"|
+|||121. The Temporal Millenium| 3"|
+|70. Immortality of the Soul |4"|122. Perfection of the Law |3"|
+|72. Christ and His Righteousness|15"| 124. Manner of Christ's Coming |2"|
+|73. Can We Keep the Sabbath?| 2"|||
+
+
  OF THE BOOK OF LUKE.
 A STUDY
 
