@@ -110,9 +110,8 @@ This lesson may be divided into three sections, as follows: Warning against Hypo
 2. "Ye are dead, and your life is hid with Christ in God." Col. 3:3. "In whose hand is the soul of every living thing, and the breath of all mankind" Job 12:10. God can utterly destroy, while man cannot, though he burn the body to ashes and scatter them to the four winds. Therefore the righteous need never fear what man may attempt to do.
 3. "Even the very hairs of your head are all numbered." Some choose to believe that this is figurative, and not an actual fact. They think so because of the seeming impossibility of the thing; but that is measuring God by man. "The things which are impossible with men are possible with God." Luke 18:27. Compare Ps. 139:1-6. God even remembers every sparrow. With confidence then can we trust ourselves in His hands, when we are assured that He not only knows, but that He cares for us. 1 Peter 5:7.
 4. Without trying to define just what constitutes blasphemy against the Holy Ghost, it is sufficient to note one or two points. "If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness." 1 John 1:9. This assures us that everyone who wants forgiveness is sure to receive it. Therefore it is certain that no matter how grievously one has sinned, he has not committed the sin against the Holy Ghost, if he desires forgiveness. No repentant soul is rejected by the Lord. "Him that cometh to Me, I will in nowise cast out." John 6:37. This should be sufficient to comfort the hearts of those who tremble lest they have committed the unpardonable sin. The man who has committed that sin is not troubled over it.
-5. "For the Holy Ghost shall teach you in the same hour what ye ought to speak." Still more emphatic is the instruction in Luke 21:12-16. But one who receives the Spirit's aid at such a time must have formed an acquaintance with the Spirit before that time. He must previously have learned to depend upon the Spirit for guidance in speaking. The one who has never dared to speak God's message without settling beforehand just what he would say, will not be likely to begin in the greatest emergency of his life. But not taking thought what one shall say, or how he shall speak, does not mean neglect of preparation. The word of God must be meditated upon day and night. "Meditate on these things; give thyself wholly to them," is the instruction of
-Paul to every servant of God. 1 Tim. 4:15
-6. "THou fool." The fool is the one who says in his heart, "There is no God." Ps. 14:1. This was just what the rich man in the parable said. Every man whose soul is absorbed in amassing wealth for himself and for his children, as well as the poor man whose anxiety day and night is how he can make a living, really says in his heart, "There is no God." He acts as though God were not in existence, and everything depended on himself. Life is something besides eating and drinking and having plenty of clothing. Life, indeed, is rest in God, and trust in His care. "He that hath the Son hath life; he that hath not the Son of God hath not life." 1 John 5:12.
+5. "For the Holy Ghost shall teach you in the same hour what ye ought to speak." Still more emphatic is the instruction in Luke 21:12-15. But one who receives the Spirit's aid at such a time must have formed an acquaintance with the Spirit before that time. He must previously have learned to depend upon the Spirit for guidance in speaking. The one who has never dared to speak God's message without settling beforehand just what he would say, will not be likely to begin in the greatest emergency of his life. But not taking thought what one shall say, or how he shall speak, does not mean neglect of preparation. The word of God must be meditated upon day and night. "Meditate on these things; give thyself wholly to them," is the instruction of Paul to every servant of God. 1 Tim. 4:15
+6. "Thou fool." The fool is the one who says in his heart, "There is no God." Ps. 14:1. This was just what the rich man in the parable said. Every man whose soul is absorbed in amassing wealth for himself and for his children, as well as the poor man whose anxiety day and night is how he can make a living, really says in his heart, "There is no God." He acts as though God were not in existence, and everything depended on himself. Life is something besides eating and drinking and having plenty of clothing. Life, indeed, is rest in God, and trust in His care. "He that hath the Son hath life; he that hath not the Son of God hath not life." 1 John 5:12.
 
 
 ## Lesson 2 - Dependence on God.
@@ -120,6 +119,7 @@ Paul to every servant of God. 1 Tim. 4:15
 #### July 14, 1894.
 
 Verses 22-31 might be summarized by the words of the prophet: "Behold, God is my salvation; I will trust, and not be afraid." Isa. 12: 2. The remainder of the lesson is about the promised kingdom.
+
 1. In the parable last studied, what was the rich man's sole care?
 2. What difference should there be between him and the Christian?
 3. What is more important than food and clothing?
@@ -148,7 +148,7 @@ Verses 22-31 might be summarized by the words of the prophet: "Behold, God is my
 2. "It is your Father's good pleasure to give you the kingdom." God delights to bestow blessings on men. "He delighteth in mercy." Micah 7:18. He gave Himself for us in the gift of Christ, who "ever liveth to make intercession for us." Therefore it is true that God lives for the purpose of bestowing the blessings of His kingdom upon us. Let us then receive it as freely as it is given, and thus add to the joy of the Lord.
 
 
-## Lesson - Preparing for His Coming
+## Lesson 3 - Preparing for His Coming
 *Luke 12:41-59; 13:1-5*
 #### July 21, 1894.
 
@@ -176,15 +176,12 @@ In studying this lesson, do not forget to review the whole chapter until you can
 ### NOTES.
 1. The gospel of Christ is the "gospel of peace" (Eph. 6:15), yet it causes division and strife, because of the hardness of men's hearts. The Lord, through the Psalmist, says, "I am for peace; but when I speak, they are for war." Ps. 120:7.
 2. Do not make the mistake of trying to make an application of all the details of the illustration in the close of chapter twelve. Remember that we are not told what the adversary, the officer, the magistrate, and the judge signify, or that they are designed to have any particular significance. Consequently, any attempt to apply them in detail, as to God, the law, Satan, etc., can be nothing but idle speculation. In the absence of any application of the terms in the Scripture, it is sufficient to be admonished by the illustration to give diligence to be at peace with God, and to be delivered from the bondage of sin.
-3. Christ teaches that it is a mistake to suppose that every calamity is a punishment for some specific sin. This is shown, not only in the present lesson, but in John 9:1-3. The entire book of Job shows the same thing. Jesus does not say that these Galileans and the others were not sinners, but that they were no greater sinners than others who had received no injury. Read the seventy-third psalm, and learn that God does not settle accounts
-in this life; and read also the book of Job, to learn that affliction is not necessarily a sign of God's displeasure. See also James 5:11.
-
-
+3. Christ teaches that it is a mistake to suppose that every calamity is a punishment for some specific sin. This is shown, not only in the present lesson, but in John 9:1-3. The entire book of Job shows the same thing. Jesus does not say that these Galileans and the others were not sinners, but that they were no greater sinners than others who had received no injury. Read the seventy-third psalm, and learn that God does not settle accounts in this life; and read also the book of Job, to learn that affliction is not necessarily a sign of God's displeasure. See also James 5:11.
 
 
 ## Lesson 4 - Loosing from Bondage
 *Luke 13:6-30*
-#### Ju1y28, 1894.
+#### Ju1y 28, 1894.
 
 This lesson may be subdivided as follows: The parable of the barren fig tree; healing the deformed woman; illustrations of the kingdom of heaven, and exhortations concerning it.
 
@@ -217,25 +214,19 @@ This lesson may be subdivided as follows: The parable of the barren fig tree; he
 4. "Strive to enter in." People misuse this text in two directions. Some say, "I have striven with all the power I had, and it is of no use, because I failed every time; I might as well give up; I am too weak to do anything." Others will think that it means that the power is in themselves, and that they are required to do it all. They have made failures, but they attribute them to the fact that they did not strive hard enough. Jesus says, "Without Me ye can do nothing." John 15:5. This shows that there is no power in man. All power in heaven and earth belongs to Christ. Matt. 28:18. It is His Spirit that supplies the power with which we are to strive. See Eph 3:16; Col. 1:11-13; Zech. 4:6. "Work out your own salvation with fear and trembling. For it is God which worketh in you, both to Will and to do of His good pleasure." Phil. 2:12, 13. The apostle Paul said, "I labor, striving according to His working, that worketh in me mightily." Col. 1:29. Remember that, although Jacob wrestled all night, he gained no victory until his strength was gone, and he had to throw himself upon the Lord for support.
 
 
-LESSON V.—August 4, 1894.
-HUrIBLED AND EXALTED. Luke 13: 31-35; 14 : 1-14.
+## Lesson 5 - Humbled and Exalted
+*Luke 13:31-35; 14:1-14*
+#### August 4, 1894.
 
-THE thirteenth chapter closes with the touching account of Christ's
-slighted love for Jerusalem. Review the entire chapter so that you
-can give the leading topics, not forgetting previous chapters. In
-that part of the lesson included in the fourteenth chapter we have
-the healing of the than with the dropsy, instruction concerning
- t55soN-.14 Ti5 :BOOK Or Lt qtr 1g
+The thirteenth chapter closes with the touching account of Christ's slighted love for Jerusalem. Review the entire chapter so that you can give the leading topics, not forgetting previous chapters. In that part of the lesson included in the fourteenth chapter we have the healing of the man with the dropsy, instruction concerning self-exaltation and the exaltation that comes from humility, and instruction as to invitations to a feast.
 
-self-exaltation and the exaltation that comes from humility, and
-instruction as to invitations to a mast.
-1. What warning tlia some give to Jesus?
+1. What warning did some give to Jesus?
 2. Was Jesus alarmed? What did He say?
 3. Where did He say He must suffer?
 4. How did He feel towards the city that had not received Him'?
-5. Where did Jesus go one Sabbath clay?
+5. Where did Jesus go one Sabbath day?
 6. Whom did He see there?
-7. 'What question did He ask the lawyers and Pharisees?
+7. What question did He ask the lawyers and Pharisees?
 8. What did they have to say?
 9. What did Jesus do?
 10. What question did He put to them to show the righteousness of what He had done?
@@ -245,53 +236,32 @@ instruction as to invitations to a mast.
 14. What will follow seeking a high place for one's self?
 15. How should we do when bidden to a place?
 16. Who only are really and permanently exalted?
-17. What did Jesus sayldso to the makers of feasts?
+17. What did Jesus say also to the makers of feasts?
 18. Why should not the rich be invited?
 19. Who should be invited? Why?
 20. When will the recompense be given?
 
 
-NOTES.
-1. IT would be a matter of. interest to collect all the recorded
-instances of healing on the Sabbath. We should find that they are
-very numerous. Some oPChrist's most remarkable cures were per-
-formed on the Sabbath. What was His object in this? If we
-recall what a burdensome yoke the scribes and Pharisees and law-
-yers had made of the commandments and of the whole service of
-God, and then remember thai the commandments of God are not
-grievous, but are ordained unto life, we shall see the reason. It
-was to let people know that the Sabbath should be a day of joy
-and blessing.
-2. WE have the choice given us whether we will receive our
-reward now or in the future. God does not bestow His rewards
-14 I.B'SSONS 'rws 1300g. OF LUXE.
+### NOTES.
+1. It would be a matter of interest to collect all the recorded instances of healing on the Sabbath. We should find that they are very numerous. Some of Christ's most remarkable cures were performed on the Sabbath. What was His object in this? If we recall what a burdensome yoke the scribes and Pharisees and lawyers had made of the commandments and of the whole service of God, and then remember that the commandments of God are not grievous, but are ordained unto life, we shall see the reason. It was to let people know that the Sabbath should be a day of joy and blessing.
+2. We have the choice given us whether we will receive our reward now or in the future. God does not bestow His rewards until the second coming of Christ (Matt 16:27; Rev. 22:12); and therefore whatever reward we get now must consist wholly in the empty applause of our fellowmen. But they who are content to wait till the coming of the Lord and the resurrection, will receive eternal riches.
 
-until the second coming of Christ (Matt- 16 : 27; Rev. 22: 12);
-and therefore whatever reward we get now must consist wholly in
-the empty applause of our fellowmen. But they who are content
-to wait till the coining of the Lord and the resurrection, will
-receive eternal riches.
+## Lesson 6 - Called to the Feast
+*Luke 14:15-35.*
+#### August 11, 1894.
 
+This lesson, which includes the remainder of the fourteenth chapter, may readily be divided, for convenience in remembering, into two subjects: "The Parable of the Supper," and "Counting the Cost." Analyze and review the entire chapter.
 
-
-
-LESSON VI.—August ii, 1894.
-CALLED TO THE FEAST. Luke 14:15-35.
-
-Tins lesson, which includes the remainder of the fourteenth
-chapter, may readily be divided, for convenience in remembering,
-into two subjects: " The Parable of the Supper," and "Counting
-the Cost.'' Analyze and review the entire chapter.
 1. Where was Jesus when He gave the instruction that is recorded in this chapter?
 2. On what day was it?
-3. What was said by one who sat at ke table with Him?
-4. What was it that led to this remail?
+3. What was said by one who sat at the table with Him?
+4. What was it that led to this remark?
 5. In what manner did Jesus reply?
 6. Without committing to memory verbally, see how accurately you can relate this parable.
 7. What did a certain man make?
-8. What did lie do at supper time?
-9. What did those who were bidden begin to do 7'
-10. What different excuses are recorded? •
+8. What did he do at supper time?
+9. What did those who were bidden begin to do?
+10. What different excuses are recorded?
 11. When the servant returned with these messages, what did the master of the house say?
 12. When this was done, what did the servant say?
 13. What was the servant then commanded to do?
@@ -301,91 +271,33 @@ the Cost.'' Analyze and review the entire chapter.
 17. What examples of counting the cost did He give?
 18. What conclusion did Jesus draw from these illustrations?
 19. What did He say of salt?
-20. What are we to learn from this? Matt. 5 : 13.
+20. What are we to learn from this? Matt. 5:13.
 
-NOTES.
-1. THE injunction never to guess at the meaning of Scripture is
-needed in connection with unexplained parables more than any-
-where else; In this case the connection shows us some, at least, of
-the lessons we may learn. Jesus was speaking about the resurrec-
-tion at His second coming, when He Himself has said that He will
-gird Himself and serve PHs own guests. Moreover, the remark
-that was prompted by the reference to the resurrection, and which
-in turn prompted the parable, was, " Blessed is he that shall eat
-bread in the kingdom of God." Therefore we know that the
-parable represents the Lord's invitation to men to eat bread in His
-kingdom. Without trying to fix a location in point of time to
-the various calls to supper, we may note the following obvious
-lessons:—
-(a) God hath chosen the poor of this world, rich in faith, as
-heirs of the kingdom (James 2 : 5), not because He is partial, for
-He bids "whosoever will " to come, but because the most of those .
-who have great earthly possessions are content with them, and also
-because whoever has wealth must become poor for the sake of
-Christ. See Luke 14: 33; 2 Cor. 8 : 9.
-(b) We may learn the danger of making excuses. Those who
-make excuses now will by and by find themselves without excuse;
-for the fact that one makes an excuse proves that he has had a
-sufficient call. Those who believe do not make excuses, and they
-partake of the feast.
-(c) We may learn a lesson of comfort and hope from the urgency
-of the Master of the feast. It was imperative that He have guests
-to His feast. " Seeing therefore it remaineth that some must enter
-therein, and they to whom it was first preached entered not in::
-because of unbelief; again, He limiteth a certain 'day, saying in
-David, To-day, after so long a time; as it is said, To-day if ye will
-hear His voice, harden not your hearts." Heb. 4 : 6, 7. God has
-sworn by Himself that His house shall be filled. He has sent the
-invitation to everybody, but most have rejected it. But His honor
-is at stake; and His oath cannot be broken, and so the feast must
-be supplied with guests. God has more at stake than any man
-can have. And so there is none so poor and wretched but that he
-will be accepted as a guest. Such are begged and entreated to
-come. They will make as worthy guests as any, since the robe
-and all the fitness that is necessary are supplied by the Lord. It
-is He that " bath made us meet to be partakers of the inheritance
-of the saints in light." Col. 1 : 12.
-16 LESSONS ON THE ROOK OH' LURE.
+### NOTES.
+1. The injunction never to guess at the meaning of Scripture is needed in connection with unexplained parables more than anywhere else. In this case the connection shows us some, at least, of the lessons we may learn. Jesus was speaking about the resurrection at His second coming, when He Himself has said that He will gird Himself and serve His own guests. Moreover, the remark that was prompted by the reference to the resurrection, and which in turn prompted the parable, was, "Blessed is he that shall eat bread in the kingdom of God." Therefore we know that the parable represents the Lord's invitation to men to eat bread in His kingdom. Without trying to fix a location in point of time to the various calls to supper, we may note the following obvious lessons:—
+(a) God hath chosen the poor of this world, rich in faith, as heirs of the kingdom (James 2:5), not because He is partial, for He bids "whosoever will" to come, but because the most of those who have great earthly possessions are content with them, and also because whoever has wealth must become poor for the sake of Christ. See Luke 14:33; 2 Cor. 8:9.
+(b) We may learn the danger of making excuses. Those who make excuses now will by and by find themselves without excuse; for the fact that one makes an excuse proves that he has had a sufficient call. Those who believe do not make excuses, and they partake of the feast.
+(c) We may learn a lesson of comfort and hope from the urgency of the Master of the feast. It was imperative that He have guests to His feast. "Seeing therefore it remaineth that some must enter therein, and they to whom it was first preached entered not in because of unbelief; again, He limiteth a certain day, saying in David, To-day, after so long a time; as it is said, To-day if ye will hear His voice, harden not your hearts." Heb. 4:6, 7. God has sworn by Himself that His house shall be filled. He has sent the invitation to everybody, but most have rejected it. But His honor is at stake; and His oath cannot be broken, and so the feast must be supplied with guests. God has more at stake than any man can have. And so there is none so poor and wretched but that he will be accepted as a guest. Such are begged and entreated to come. They will make as worthy guests as any, since the robe and all the fitness that is necessary are supplied by the Lord. It is He that "hath made us meet to be partakers of the inheritance of the saints in light." Col. 1:12.
+2. "If any man come to Me, and hate not his father, and mother, and wife, and children, and brethren, and sisters, yea, and his own life also, he cannot be My disciple." The same Spirit that uttered these words also inspired the apostle Paul to write, "Husbands, love your wives, even as Christ also loved the church, and gave Himself for it" (Eph. 5:25); and, "If any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel." 1 Tim. 5:8. The Spirit does not contradict itself. Let Christ's own words, as recorded in Matt. 10:37, be the comment on the meaning of the word "hate" in the text in the lesson. "He that loveth father or mother more than Me is not worthy of Me; and he that loveth son or daughter more than Me is not worthy of Me." That love which leads a soul away from Christ is to be forsaken.
 
-2. " IF any man come to Me, and hate not his father, and
-mother, and wife, and children, and brethren, and sisters, yea, and
-his own life also, he cannot be My disciple." The same Spirit that
-uttered these words also inspired the apostle Paul to write, " Hus-
-bands, love your wives, even as Christ also loved the church, and
-gave Himself for it " (Eph. 5: 25); and, " If any provide not for
-his own, and specially for those of his own house, he hath denied
-the faith, and is worse than an infidel." 1 Tim. 5 : 8. The Spirit
-does not contradict itself. Let Christ's own words, as recorded in
-Matt. 10 : 37, be the comment on the meaning of the word "hate"
-in the text in the lesson. " He that loveth father or mother more
-than Me is not worthy of Me; and he that loveth son or daughter
-more than Me is not worthy of Me." That love which leads
-a soul away from Christ is to be forsaken.
+## Lesson 7 - The lost Found
+*Luke 15:1-32.*
+#### August 18, 1894.
 
-
-
-
-LESSON V11.---August 18, 1894.
-THE LOST FOUND. Luke 15 : 1-32.
-
-THERE is but one subject treated of in this chapter, and that is
-indicated in the title of the lesson. But it is considered under
-three heads, namely, " The Lost Sheep," " The Lost Piece of
-Money," and " The Prodigal Son." These are all familiar
-stories. See how minutely you can relate them.
+There is but one subject treated of in this chapter, and that is indicated in the title of the lesson. But it is considered under three heads, namely, "The Lost Sheep", "The Lost Piece of Money," and "The Prodigal Son". These are all familiar stories. See how minutely you can relate them.
 
 1. Who drew near to hear Jesus?
 2. In what words did the scribes and Pharisees murmur against Him?
 3. What did this call forth from Jesus?
 4. Relate the first parable.
-5. How long does the man in the parable seek the lost sheep
+5. How long does the man in the parable seek the lost sheep?
 6. How does he feel when he finds it?
 7. What does he do when he reaches home?
 8. What lesson did Jesus teach from this?
 9. What was the second parable?
 10. What does the woman do when she has lost the piece of silver?
 11. What when she finds it?
-12. What lesson does Jesus teach from this? •
+12. What lesson does Jesus teach from this?
 13. Relate the third parable.
 14. What did the younger of the two sons receive from his father?
 15. What did he do with it?
@@ -393,67 +305,30 @@ stories. See how minutely you can relate them.
 17. What took place then?
 18. When he came to himself, what did he say?
 19. What did he do?
-20. What took place when " he was yet a great way off"?
+20. What took place when "he was yet a great way off"?
 21. Did his father accept him as a servant?
 22. How did he treat him?
 23. What was the general feeling over the returned son?
 24. How did the elder son feel?
 26. What was the father's reply?
 
-NOTES.
-1. " THIS man receiveth sinners." That which the Pharisees
-uttered as a reproach against Jesus, is His greatest glory. It is a
-glory to Him, and He glories in it. He is not ashamed to receive
-sinners. " He is not ashamed to call them brethren." Heb. 2 : 11.
-" Behold what manner of love the Father hath bestowed upon us
-that we should be called the sons of God." He receives us when
-we offer ourselves to Him as servants, and makes us sons. "Hence-
-forth I call you not servants; . . . but I have called you
-friends." John 15 : 15. " Wherefore thou art no more a servant
-but a son; and if a son, then an heir of God through Christ."
-Gal. 4 : 7.
-2. " THERE is joy in the presence of the angels of God over one
-sinner that repenteth." If you are not very watchful, you will
-find yourself reading according to the common way, .'° There is
-joy among the angels over one sinner that repenteth." This is
-doubtless true, but it is not what the text says. " There is joy in
-the presence of the angels of God." This includes the other thought,
-and adds infinitely more to it. God Himself is not ashamed to
-exhibit in the presence of the angels His great joy over one repent-
-ant sinner. What more could be said to encourage poor wanderers?
-It is not that God will not cast off the repentant one, but that He
-is overflowing with joy at his return. He cannot and does.not
-attempt to conceal His great joy when even one sinner repents.
-18 LESSONS ON TEE 1300K OF LUKE.
+### NOTES.
+1. "This man receiveth sinners." That which the Pharisees uttered as a reproach against Jesus, is His greatest glory. It is a glory to Him, and He glories in it. He is not ashamed to receive sinners. "He is not ashamed to call them brethren." Heb. 2:11. "Behold what manner of love the Father hath bestowed upon us that we should be called the sons of God." He receives us when we offer ourselves to Him as servants, and makes us sons. "Henceforth I call you not servants; ... but I have called you friends." John 15:15. "Wherefore thou art no more a servant but a son; and if a son, then an heir of God through Christ." Gal. 4:7.
+2. "There is joy in the presence of the angels of God over one sinner that repenteth." If you are not very watchful, you will find yourself reading according to the common way, "There is joy among the angels over one sinner that repenteth." This is doubtless true, but it is not what the text says. "There is joy in the presence of the angels of God." This includes the other thought, and adds infinitely more to it. God Himself is not ashamed to exhibit in the presence of the angels His great joy over one repentant sinner. What more could be said to encourage poor wanderers? It is not that God will not cast off the repentant one, but that He is overflowing with joy at his return. He cannot and does not attempt to conceal His great joy when even one sinner repents. He watches for him and rushes to meet him when he is yet a long way off. 
 
-He watches for him and rushes to meet him when he is yet a long
-way off.
-"For the love of God is broader
-Than the measure of man's mind;
+*"For the love of God is broader
+Than the measure of man's mind; 
 And the heart of the Eternal
-Is most wonderfully kind."
-3. IN studying the parable of the prodigal. son, do not lose the
-preciousness of it by ailnwing-you-rmind-to-run- off .into -specula-
-tion ac..to-who-areludinated-by---the two•sons. Whoever -you are,
-the parable means you. Granted that the hard elder brother rep-
-resents the position of the Pharisees toward the publicans and the
-Gentiles, we must still remember that the race of Pharisees is not
-yet extinct. We are either the prodigal son returning to the
-Father's house, or else we are the carping elder brother. And the
-worst of the second case is that we are actually in as hard circum-
-stances as the prodigal, and unconscious of it. See Rev. 3 : 17.
-Ltt_us be content in studying.Qiis chapter to feast upon the revc-
-lation'of,the wonderful love Of God,, that we may betheinore
-closely drawn, to Him. Let this word concerning Christ'Ve--ever
-in our minds, This Man receiveth sinners."
+Is most wonderfully kind."*
+
+3. In studying the parable of the prodigal son, do not lose the preciousness of it by allowing your mind to run off into speculation as to who are indicated by the two sons. Whoever you are, the parable means you. Granted that the hard elder brother represents the position of the Pharisees toward the publicans and the Gentiles, we must still remember that the race of Pharisees is not yet extinct. We are either the prodigal son returning to the Father's house, or else we are the carping elder brother. And the worst of the second case is that we are actually in as hard circumstances as the prodigal, and unconscious of it. See Rev. 3:17.
+Let us be content in studying this chapter to feast upon the revelation of the wonderful love of God, that we may be the more closely drawn to Him. Let this word concerning Christ be ever in our minds, "This Man receiveth sinners."
 
 
 
-
-LESSON VI11.—August 25, 1894.
-
-GIVING NO OFFENSE AND GLORIFYING GOD. Luke
-17: 1-19.
+## Lesson 8 - Giving No Offense and Glorifying God
+*Luke 17:1-19.*
+#### August 25, 1894.
 
 THE sixteenth chapter of Luke includes two parables,—the
 unfaithful steward, and the rich man and Lazarus. The chapter is
@@ -466,7 +341,7 @@ be worse than wasted. It is evident from verses 14 and 15 that
 the entire chapter is directed against covetousness. Let each one
 meditate upon the parables more than he ever did before, but for-
 beaiing to speculate or to indulge in any fancies as to what they
- LESSONS ON THE BOOK OF LURE. 19
+
 
 mean. In the meantime, the continuity of this study of .the book
 of Luke will be unbroken if you remember that the sixteenth
@@ -502,7 +377,6 @@ NOTES.
 stumbling." The Greek word is skandala—scandals. The idea is
 not of things by which one may be personally affronted, but of sin
 of any kind—things whereby one stumbles.
-20 LESSONS ON THE BOOR OF LURE
 
 2. '• TAKE heed to yourselves." Compare Gal. 6 : 1. " If a
 man be overtaken in a fault, ye which are spiritual, restore such a
@@ -549,7 +423,6 @@ a lordry disposition toward any other. All are brethren, and there
 is no respect of persons with God. Therefore Luke 17: 7-9 cannot
 be construed as teaching that employers need not be grateful for
 services rendered by employes. Jesus took the ordinary condition
- LESSONS ON THE BOOK OF LUKE. 21
 
 of things as an illustration. The lesson that we are to learn is not
 to expect that whatever we do we are adding anything to the Lord,
@@ -558,11 +431,9 @@ few short years he can earn an eternal reward. " The gift of God
 is eternal life."
 
 
-
-
-LESSON IX.—September 1, 1894.
-
-CHRIST'S SECOND COMING. Luke 17:20-37.
+## Lesson 9 - Christ's Second Coming
+*Luke 17:20-37*
+#### September 1, 1894.
 
 THE title of this lesson will be found sufficient analysis of it.
 See how easily you can recall all the subjects treated of in this
@@ -609,10 +480,9 @@ bodies so that they will also shine as the sun.
 
 
 
-
-LESSON X.—September 8, 1894.
-PREVAILING PRAYER. Luke 18: 1-22.
-
+## Lesson 10 - Prevailing Prayer
+*Luke 18:1-22.*
+#### September 8, 1894.
 
 WE have in this lessbn four topics, although the last one is not
 completed in this. The subjects are : The -Unjust Judge ; The
@@ -661,7 +531,7 @@ before we ask. 1 Peter 3: 12. He has provided the way for us to
 come to Him, and asks us to come boldly. He delights-in mercy.
 Micah 7 : 18. The reason why we are to be encouraged to continue
 instant in prayer, and not to faint; is that God is so kind and ready
-24 LESSONS ON THE BOOK OF LUKE.
+
 
 to give. " He that spared not His own Son, but delivered Him up
 for us all, how shall He not with Him also freely give us all
@@ -696,14 +566,12 @@ himself better,than he did his neighbor. Thus we have the second
 great principle of the law violated. But to break the second prin-
 ciple means the violation of the first. " For he that loveth not his
 brother whom he bath seen, cannot love God whom he hath not
-seen." 1 John 4 : 20, Revised Version.•
- LESSONS ON THE BOOK OF LUKE. 26
+seen." 1 John 4 : 20, Revised Version.
 
 
-
-LESSON XI.—September 15, 1894.
-
-SIGHT FOR THE BLIND. Luke 18 : 23-43.
+## Lesson 11 - Sight for the Blind
+*Luke 18:23-43.*
+#### September 15, 1894.
 
 IN this lesson we have the remainder of the story of the young
 ruler, Christ's death foretold, and the healing of the blind man.
@@ -775,7 +643,6 @@ precede the glory. 1 Peter 1 : 10, 11.
 by as an ordinary story. It was not given merely to excite our
 wonder. but to cause us to trust in God. Note the readiness with
 which Jesus received him and healed him. This was the mercy of
- LESSONS ON THE BOOK OF LUKE. 27
 
 the Lord. Note that it was the faith of the blind than that brought
 him his sight. He was poor, a beggar. He could do nothing for
@@ -797,10 +664,9 @@ Because Thy promise I believe;
 
 
 
-
-LESSON X11.—September 22, 1894.
-
-A SON OF ABRAHAM. Luke 19: 1-27.
+## Lesson 12 - A song of Abraham
+*Luke 19:1-27.*
+#### September 22, 1894.
 
 Do NOT forget to review the chapters that have already been
 passed over. Repetition and continual association are the secret of
@@ -856,7 +722,6 @@ one has any right to boast over another. See 1 Cor. 4 : 7. Com-
 pare Luke 19: 26 with Luke 8: 18. That which is taken away
 from men at the last is not that which they have in their own right,
 but that which has been lent them 10.trade with, and which they
- LESSONS ON THE BOOK OF LUKE. 29
 
 have not used. They only seem to have it. No injustice is done
 them, for they never had anything of their own, and they refused
@@ -864,12 +729,9 @@ the capital which was provided them.
 
 
 
-
-LESSON XI11.---September 29, 1894.
-
-TRIUMPHANT ENTRY INTO JERUSALEM. Luke 19:
-28-48.
-
+## Lesson 12 - Triumphant Entry into Jerusalem
+*Luke 19:28-48.*
+#### September 29, 1894.
 
 Do NOT fail to notice how few subjects are embraced in this
 chapter, and how easily it may be held in mind. Of course no
@@ -924,6 +786,8 @@ long before this thing had been foretold in prophecy. See Zech.
 9-: 9. God's word cannot fail. If men will not act the part
 ' assigned them, the very stones will do their work. God's word is
 so full of life that it can animate the stones. Compare Matt. 3 : 9.
+
+
  SIGNS OF THE TIMES.
 A 16 PAGE WEEKLY JOURNAL.
 Devoted to the dissemination of the Gospel of Christ in all its purity, and an
