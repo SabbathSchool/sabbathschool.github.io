@@ -321,8 +321,7 @@ Than the measure of man's mind;
 And the heart of the Eternal
 Is most wonderfully kind."*
 
-3. In studying the parable of the prodigal son, do not lose the preciousness of it by allowing your mind to run off into speculation as to who are indicated by the two sons. Whoever you are, the parable means you. Granted that the hard elder brother represents the position of the Pharisees toward the publicans and the Gentiles, we must still remember that the race of Pharisees is not yet extinct. We are either the prodigal son returning to the Father's house, or else we are the carping elder brother. And the worst of the second case is that we are actually in as hard circumstances as the prodigal, and unconscious of it. See Rev. 3:17.
-Let us be content in studying this chapter to feast upon the revelation of the wonderful love of God, that we may be the more closely drawn to Him. Let this word concerning Christ be ever in our minds, "This Man receiveth sinners."
+3. In studying the parable of the prodigal son, do not lose the preciousness of it by allowing your mind to run off into speculation as to who are indicated by the two sons. Whoever you are, the parable means you. Granted that the hard elder brother represents the position of the Pharisees toward the publicans and the Gentiles, we must still remember that the race of Pharisees is not yet extinct. We are either the prodigal son returning to the Father's house, or else we are the carping elder brother. And the worst of the second case is that we are actually in as hard circumstances as the prodigal, and unconscious of it. See Rev. 3:17. Let us be content in studying this chapter to feast upon the revelation of the wonderful love of God, that we may be the more closely drawn to Him. Let this word concerning Christ be ever in our minds, "This Man receiveth sinners."
 
 
 
@@ -330,125 +329,57 @@ Let us be content in studying this chapter to feast upon the revelation of the w
 *Luke 17:1-19.*
 #### August 25, 1894.
 
-THE sixteenth chapter of Luke includes two parables,—the
-unfaithful steward, and the rich man and Lazarus. The chapter is
-not omitted from detailed consideration in this study beCause it is
-unimportant, but because it is thought better not to open the way
-for the speculation and controversy that would inevitably arise in
-a class study of the two parables. Each one would have a theory
-as to the meaning of the parables, and the time of the class would
-be worse than wasted. It is evident from verses 14 and 15 that
-the entire chapter is directed against covetousness. Let each one
-meditate upon the parables more than he ever did before, but for-
-beaiing to speculate or to indulge in any fancies as to what they
+The sixteenth chapter of Luke includes two parables: the unfaithful steward, and the rich man and Lazarus. The chapter is not omitted from detailed consideration in this study because it is unimportant, but because it is thought better not to open the way for the speculation and controversy that would inevitably arise in a class study of the two parables. Each one would have a theory as to the meaning of the parables, and the time of the class would
+be worse than wasted. It is evident from verses 14 and 15 that the entire chapter is directed against covetousness. Let each one meditate upon the parables more than he ever did before, but forbearing to speculate or to indulge in any fancies as to what they mean. In the meantime, the continuity of this study of the book of Luke will be unbroken if you remember that the sixteenth chapter is devoted to the two parables.
 
+In the lesson before us we have a warning against causing any to stumble; an illustration of the fact that we have nothing by which we place God under any obligation to us; and the account of the healing of ten lepers, only one of whom thanked God.
 
-mean. In the meantime, the continuity of this study of .the book
-of Luke will be unbroken if you remember that the sixteenth
-chapter is devoted to the two parables.
-In the lesson before us we have a warning against causing any to
-stumble; an illustration of the fact that we have nothing by which
-we place God under any obligation to us ; and the account of the
-healing of ten lepers, only one of whom thanked God.
-
-1. What did Jesus say will certainly.come?
+1. What did Jesus say will certainly come?
 2. What about the one by whom they come?
-3. What would be better for such an one? •
+3. What would be better for such an one?
 4. Of what are we to take heed?
 5. What is to be done in case a brother sins?
 6. What if a brother trespasses against us repeatedly?
-7. What did the apostles see Was necessary in order thus to forgive?
+7. What did the apostles see was necessary in order thus to forgive?
 8. What did Jesus say about the power of faith as a grain of mustard seed?
 9. If one has a servant, what will be expected of him?
-10. When the servant waits,tipon his master, what only does he do?
-11. What might be said of us if we had done all that is corn-***mandea us?
+10. When the servant waits upon his master, what only does he do?
+11. What might be said of us if we had done all that is commanded us?
 12. What only can we do?
 13. As Jesus was going to Jerusalem, through what did He pass?
 14. Who met Him in a certain village?
 15. What did they cry out?
-16. What did Jesus say to them.?
+16. What did Jesus say to them?
 17. What took place as they went?
 18. What did one of them do when he saw that he was healed?
 19. Who was this one?
 20. What did Jesus say about it?
 
-NOTES.
-1. "OFFENSES." The Revised Version has "occasions of
-stumbling." The Greek word is skandala—scandals. The idea is
-not of things by which one may be personally affronted, but of sin
-of any kind—things whereby one stumbles.
-
-2. '• TAKE heed to yourselves." Compare Gal. 6 : 1. " If a
-man be overtaken in a fault, ye which are spiritual, restore such a
-one in the spirit of meekness; considering thyself, lest thou also be
-tempted." The Revised Version omits the words "against thee."
-" If thy brother sin, rebuke him ; and if he repent, forgive him."
-This removes the personal element, which should not appear in
-any case. Our duty to restore a brother is as great if the offense
-be against somebody else as though it were against us, and we
-are to have no more feeling over the matter because our personal
-rights have been interfered with than though the offense was
-against a stranger.
-• 3. IN the fourth verse we have offenses against the individual
-referred 10. If a brother trespass against us seven times in a day,
-and seven times turns and says, " I repent," we are to forgive him.
-We cannot suppose that this limits the number of times we are to
-forgive ; for he who would keep count of the number of times that
-he was trespassed against, and the number of times that he had
-forgiven, so as to be sure not to overstep the number, would
-thereby show that there was no real spirit of forgiveness in him.
-The idea is that there is to be nothing but a spirit of forgiveness
-all- the time. "And be ye kind one to another, tender-hearted,
-forgiving one another; even as God for Christ's sake bath forgiven
-you." Eph. 4 : 32. How does God forgive?—"All things are of God,
-who hath reconciled us to Himself by Jesus Christ. . . As
-though God did beseech you by us; we pray you in Christ's stead,
-bb ye reconciled to God." 2 Cm 5: 18-20. Notice that if the
-brother shall say, "I repent," we are to forgive him. We are not
-to inquire into his motives nor his sincerity.
-4. "AND the'apostles said unto the Lord, Increase our faith;"
-literally, "add to us faith." Whether the apostles really asked
-for an increase of faith, or that they might have faith, makes no
-difference; for the Saviour's answer shows that if one has faith at
-.all it is sufficient. Faith cannot exist with doubt. If one has
-faith as a grain of mustard seed, he has no doubt whatever; and
-therefore he can do all things that may be done by faith. Such
-forgiveness as is here enjoined cannot be done without faith ; for
-we are to forgive as God forgives, and that • can be done only with
-His Spirit, which is ours only by faith.
-
-5. EPH. 6 : 5-9 shows the proper relation between masters
-and servants, as also in Matt. 20 : 25-28. No one is to exhibit
-a lordry disposition toward any other. All are brethren, and there
-is no respect of persons with God. Therefore Luke 17: 7-9 cannot
-be construed as teaching that employers need not be grateful for
-services rendered by employes. Jesus took the ordinary condition
-
-of things as an illustration. The lesson that we are to learn is not
-to expect that whatever we do we are adding anything to the Lord,
-so that He is under obligation to us. Let no one think that in a
-few short years he can earn an eternal reward. " The gift of God
-is eternal life."
-
+### NOTES.
+1. "Offenses." The Revised Version has "occasions of stumbling." The Greek word is skandala - scandals. The idea is not of things by which one may be personally affronted, but of sin of any kind - things whereby one stumbles.
+2. "Take heed to yourselves." Compare Gal. 6:1. "If a man be overtaken in a fault, ye which are spiritual, restore such a one in the spirit of meekness; considering thyself, lest thou also be tempted." The Revised Version omits the words "against thee." " If thy brother sin, rebuke him; and if he repent, forgive him." This removes the personal element, which should not appear in any case. Our duty to restore a brother is as great if the offense be against somebody else as though it were against us, and we are to have no more feeling over the matter because our personal rights have been interfered with than though the offense was against a stranger.
+3. In the fourth verse we have offenses against the individual referred to. If a brother trespass against us seven times in a day, and seven times turns and says, "I repent," we are to forgive him. We cannot suppose that this limits the number of times we are to forgive; for he who would keep count of the number of times that he was trespassed against, and the number of times that he had forgiven, so as to be sure not to overstep the number, would thereby show that there was no real spirit of forgiveness in him. The idea is that there is to be nothing but a spirit of forgiveness all the time. "And be ye kind one to another, tenderhearted, forgiving one another; even as God for Christ's sake hath forgiven you." Eph. 4:32. How does God forgive? - "All things are of God,
+who hath reconciled us to Himself by Jesus Christ... As though God did beseech you by us; we pray you in Christ's stead, be ye reconciled to God." 2 Cor. 5:18-20. Notice that if the brother shall say, "I repent," we are to forgive him. We are not to inquire into his motives nor his sincerity.
+4. "And the apostles said unto the Lord, Increase our faith;" literally, "add to us faith." Whether the apostles really asked for an increase of faith, or that they might have faith, makes no difference; for the Saviour's answer shows that if one has faith at all it is sufficient. Faith cannot exist with doubt. If one has faith as a grain of mustard seed, he has no doubt whatever; and therefore he can do all things that may be done by faith. Such forgiveness as is here enjoined cannot be done without faith; for we are to forgive as God forgives, and that can be done only with His Spirit, which is ours only by faith.
+5. Eph. 6:5-9 shows the proper relation between masters and servants, as also in Matt. 20:25-28. No one is to exhibit a lordry disposition toward any other. All are brethren, and there is no respect of persons with God. Therefore Luke 17:7-9 cannot be construed as teaching that employers need not be grateful for services rendered by employees. Jesus took the ordinary condition of things as an illustration. The lesson that we are to learn is not to expect that whatever we do we are adding anything to the Lord, so that He is under obligation to us. Let no one think that in a few short years he can earn an eternal reward. "The gift of God is eternal life."
 
 ## Lesson 9 - Christ's Second Coming
 *Luke 17:20-37*
 #### September 1, 1894.
 
-THE title of this lesson will be found sufficient analysis of it.
-See how easily you can recall all the subjects treated of in this
-chapter.
-1. What did some of the Pharisees demand of .Jesus?
+The title of this lesson will be found sufficient analysis of it. See how easily you can recall all the subjects treated of in this chapter.
+
+1. What did some of the Pharisees demand of Jesus?
 2. How did He say the kingdom of God would not come?
 3. What can men not say about the kingdom?
 4. What did He say to His disciples?
-5. What will men say in spite of the Lord's instructions? Compare verse 23 with Matt. 24 28.
+5. What will men say in spite of the Lord's instructions? Compare verse 23 with Matt. 24:23.
 6. How are we to regard such sayings?
 7. What will be the manner of Christ's coming?
 8. What did He tell the people must first take place?
-9. What did all the prophets speak of as preceding the glorious coming of the Loid? 1 Peter 1 : 10,11.
-10. How will it be in the days of the coining of the Lord?
-11. How were the people also doing in the dtiys of Lot?
+9. What did all the prophets speak of as preceding the glorious coming of the Lord? 1 Peter 1:10, 11.
+10. How will it be in the days of the coming of the Lord?
+11. How were the people also doing in the days of Lot?
 12. What comparison is made between that time and the last days?
 13. When the day of the Lord comes, what should not be done?
 14. What are we exhorted to remember?
@@ -457,28 +388,9 @@ chapter.
 17. How closely will the division be made?
 18. What did Jesus reply in answer to the question where these judgments should occur?
 
-NOTE.
-1. " THE kingdom of God is within you." This may be ren-
-dered?‘among you." But the idea which the Saviour seeks to
-impress on our minds is the fact of the gradual development of the
-kingdom. Those, who are waiting for it to burst upon them sud-
-denly will see it too late. The kingdom of God is a condition, as
-well as a place. Only those in whom the principles of the king-
-dom are developed, can have any part in it when it is revealed.
-God bestows upon us His glory in this present time. See John 17:
-22 ; 1 Peter 5: 1. This glory is in the form of His grace. Christ's
-glory when on this earth was the glory of the only-begotten Son of
-God, but it was manifested in His fullness of grace and truth.
-John 1 : 14. The effect of the glory in this present time is to
-transform the characters of those who believe. See 2 Cor. 3 : 18 ;
-4: 4-6. Thus they become fitted to dwell in the kingdom where
-the glory of God shines without being veiled. Then when at last
-the glory is revealed, it will not be so unnatural and foreign a
-thing as to blind them, and cause their death, but will simply add
-the finishing touch in the transformation, namely, to change their
-bodies so that they will also shine as the sun.
-
-
+### NOTE.
+1. "The kingdom of God is within you." This may be rendered "among you". But the idea which the Saviour seeks to impress on our minds is the fact of the gradual development of the kingdom. Those, who are waiting for it to burst upon them suddenly will see it too late. The kingdom of God is a condition, as well as a place. Only those in whom the principles of the kingdom are developed, can have any part in it when it is revealed. God bestows upon us His glory in this present time. See John 17:22 ; 1 Peter 5:1. This glory is in the form of His grace. Christ's glory when on this earth was the glory of the only-begotten Son of
+God, but it was manifested in His fullness of grace and truth. John 1:14. The effect of the glory in this present time is to transform the characters of those who believe. See 2 Cor. 3:18; 4:4-6. Thus they become fitted to dwell in the kingdom where the glory of God shines without being veiled. Then when at last the glory is revealed, it will not be so unnatural and foreign a thing as to blind them, and cause their death, but will simply add the finishing touch in the transformation, namely, to change their bodies so that they will also shine as the sun.
 
 ## Lesson 10 - Prevailing Prayer
 *Luke 18:1-22.*
